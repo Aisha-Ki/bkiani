@@ -1,5 +1,5 @@
 # Hi, I’m Aisha Kiani 🪷   
-She/Her | Organizer, Poet & Climate Advocate | [Founder of The Zubaani Collective] (https://bkiani047.wixsite.com/mysite/copy-of-photography)
+She/Her | Organizer, Poet & Climate Advocate | [Founder of The Zubaani Collective](https://bkiani047.wixsite.com/mysite/copy-of-photography)
 
 🌍 I’m a [Reducetarian](https://www.reducetarian.org/) alum and supporter of their ideology promoting reduced meat consumption for a more sustainable and compassionate food system.
 
