@@ -1,4 +1,4 @@
-# [Founder of The Zubaani Collective](https://github.com/Aisha-Ki/New-World-for-All-Beings.git)
+# [Journalism: Full Circle Farm Sanctuary Ethnographic Study ](https://github.com/Aisha-Ki/New-World-for-All-Beings.git)
 # Hi, I’m Aisha Kiani 🪷   
 She/Her | Organizer, Poet & Climate Advocate | [Founder of The Zubaani Collective](https://bkiani047.wixsite.com/mysite/copy-of-photography)
 
